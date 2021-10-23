@@ -1,1 +1,1 @@
-Personal webpage: https://haileygibbs.github.io
+Personal webpage: https://haileymgibbs.github.io/gibbs/
